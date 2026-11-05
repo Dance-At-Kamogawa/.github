@@ -1,12 +1,12 @@
 # #鴨川で踊るか
 
 かんちゅと浮遊による包括型エンタメユニット。
-野外で聞くFunkotへの憧憬から2017年に始動。遵法精神の下、鴨川デルタでのハンドメイドレイヴを中心に活動を行う。「イベントの開催」というテーマに多角的に向き合い、自由な告知スタイルでタイムラインに潤いを与えている。
+野外で聞くFunkotへの憧憬から2017年に始動。遵法精神の下、鴨川デルタでのハンドメイドレイヴを原点に、「イベントの開催」というテーマに多角的に向き合い、自由な告知スタイルでタイムラインに潤いを与えている。
 
-近年は集まるたびに中国料理店を巡り、中国の食文化に対する理解を深めている。
+近年はかんちゅが華語圏音楽を軸に国内外の現場を渡り歩き、浮遊が町田カプセルを拠点にポップス中心パーティーを立ち上げるなど、賀茂川と高野川のようにそれぞれの水脈を広げている。
 
 -----
 
-Dance-At-Kamogawa (DAK) is a comprehensive entertainment duo, which consists of Kanchu and Fuyuu. DAK was formed in 2017 around the adoration for appreciating Funkot music outside. Since then, we keep on dancing in a law-abiding spirit, primarily at Kamogawa Delta. We examine "what the events should be?" and develop a novel methodology for events promotion.
+Dance-At-Kamogawa (DAK) is a comprehensive entertainment duo, which consists of Kanchu and Fuyuu. DAK was formed in 2017 around the adoration for appreciating Funkot music outside. Starting from law-abiding handmade raves at Kamogawa Delta, we examine "what the events should be?" and develop a novel methodology for events promotion.
 
-Additionally, we dine in an authentic Chinese restaurant every time and gain a better understanding of various food cultures.
+In recent years, Kanchu has been hopping between venues at home and abroad centered on Sinophone music, while Fuyuu has launched pop-oriented parties based at Machida Capsule — each extending our own waterways, like the Kamo and Takano rivers.
