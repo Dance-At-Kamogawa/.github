@@ -7,6 +7,6 @@
 
 -----
 
-Dance-At-Kamogawa (DAK) is a comprehensive entertainment duo, which consists of Kanchu and Fuyuu. DAK was formed in 2017 around the adoration for appreciating Funkot music outside. Starting from law-abiding handmade raves at Kamogawa Delta, we examine "what the events should be?" and develop a novel methodology for events promotion.
+Dance-At-Kamogawa (DAK) is a comprehensive entertainment duo, which consists of Kanchu and Fuyuu. DAK was formed in 2017 around the adoration for appreciating Funkot music outside. Since then, with handmade raves at Kamogawa Delta in a law-abiding spirit as our point of origin, we examine "what the events should be?" and develop a novel methodology for events promotion.
 
-In recent years, Kanchu has been hopping between venues at home and abroad centered on Sinophone music, while Fuyuu has launched pop-oriented parties based at Machida Capsule — each extending our own waterways, like the Kamo and Takano rivers.
+Additionally, in recent years, Kanchu has been traversing venues both domestic and international with a particular emphasis on Sinophone music, whereas Fuyuu has established a series of pop-oriented parties based at Machida Capsule. Analogous to the Kamogawa and the Takanogawa, each member continues to expand their respective watershed.
